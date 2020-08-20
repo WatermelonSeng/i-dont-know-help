@@ -5,4 +5,6 @@
 
 The monster showed up succeeding midnight. Like they do.
 
-Conor 
+Conor did not sleep when it did come.
+
+Conor owned one night terror. Well, not *one* night terror. *The* night terror. The one he'd been owning 
