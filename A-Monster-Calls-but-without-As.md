@@ -15,3 +15,6 @@ He looked over to the clock his mum put on his bedside desk. 12.07. Twelve minut
 
 He'd told no one about the night terror. Not his mum, obviously, but no one else either, not his pop in their fortnightly (or so) phone conference, *definitely* not his eldmother, no one in school. Definitely not.
 
+No one else ever needed to know the plot storyline in his night terror.
+
+Conor blinked groggily in his room, then he frowned. Something seemed to be missing. He 
