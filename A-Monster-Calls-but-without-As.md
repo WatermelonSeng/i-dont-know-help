@@ -17,4 +17,4 @@ He'd told no one about the night terror. Not his mum, obviously, but no one else
 
 No one else ever needed to know the plot storyline in his night terror.
 
-Conor blinked groggily in his room, then he frowned. Something seemed to be missing. He 
+Conor blinked groggily in his room, then he frowned. Something seemed to be missing. He woke more while he 
