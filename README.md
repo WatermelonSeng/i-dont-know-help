@@ -15,3 +15,9 @@ i was just thinking the other day what if we wrote a book without any 'a's?
 
 ya so thats what im writing over at the other document lmao
 
+future projects:
+
+book without 'o'
+
+probably around the world in eighty days i did a draft bef
+
