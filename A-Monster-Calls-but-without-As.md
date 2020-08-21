@@ -29,3 +29,13 @@ Then something. Something which woke him, he noted.
 Someone was beckoning him with his title.
 
 *Conor.*
+
+He felt rushes of fright, his guts twisting. Did it follow him? Did it somehow step out of the night terror then-
+
+"Don't be stupid," he told himself. "You're too old for monsters."
+
+Indeed, he'd turned thirteen in September. Monsters were for newborns. Monsters were for bed-wetters. Monsters were for-
+
+*Conor.*
+
+There once more. Conor gulped. 
