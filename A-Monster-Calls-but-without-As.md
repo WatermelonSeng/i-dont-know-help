@@ -19,4 +19,12 @@ No one else ever needed to know the plot storyline in his night terror.
 
 Conor blinked groggily in his room, then he frowned. Something seemed to be missing. He got up from his sleep, rousing more. The night terror slowly retired, but something which he could not put his finger on bothered him, something different, something-
 
+He listened, exterting his energy on the silence, but he could only hear the quiet house he was within, the intermittent tick from the empty first floor or the rustle of bedding from his mum's room next door.
 
+Nothing.
+
+Then something. Something which woke him, he noted.
+
+Someone was beckoning him with his title.
+
+*Conor.*
