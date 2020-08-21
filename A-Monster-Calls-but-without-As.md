@@ -38,4 +38,12 @@ Indeed, he'd turned thirteen in September. Monsters were for newborns. Monsters 
 
 *Conor.*
 
-There once more. Conor gulped. 
+There once more. Conor gulped. The month was oddly hot, with his window still open. The sounds of the blinds shushing in the slight breeze could sound possibly like-
+
+*Conor.*
+
+OK, it's not the wind. It seemed to be definitely one voice, but not one he recognised. For sure, I couldn't be his mother's. It completely didn't sound like the opposite gender, pressing Conor for one nutty moment to wonder if his pop somehow surprisingly visited from the US but got there too behind time to phone so-
+
+*Conor.*
+
+No. Not his pop. This voice owned texture, very monstrous texture, wild.
