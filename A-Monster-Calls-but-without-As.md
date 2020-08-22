@@ -46,4 +46,4 @@ OK, it's not the wind. It seemed to be definitely one voice, but not one he reco
 
 *Conor.*
 
-No. Not his pop. This voice owned texture, very monstrous texture, wild.
+No. Not his pop. This voice owned texture, wild, brutish, monstrous texture.
