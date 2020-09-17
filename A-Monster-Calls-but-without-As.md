@@ -48,4 +48,4 @@ OK, it's not the wind. It seemed to be definitely one voice, but not one he reco
 
 No. Not his pop. This voice owned texture. Wild, brutish, monstrous texture.
 
-Then he percieved weighty screeches of wood outside, like something humongous 
+Then he percieved weighty screeches of wood outside, like something humongous striding 'cross timber floors.
