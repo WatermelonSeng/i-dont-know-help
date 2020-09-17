@@ -12,4 +12,4 @@ Conor took a quick look at the clock his mum had put on his nightstand. 12.07. S
 
 Conor had told no one about the bad story. Not his mum, obviously, not a soul, not his dad in their fortnightly (or so) phone call, certainly not his grandma, and nobody at school.
 
-Certanly not.
+Obviously not.
