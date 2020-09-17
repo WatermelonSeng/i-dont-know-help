@@ -52,4 +52,4 @@ Then he percieved weighty screeches of wood outside, like something humongous st
 
 He didn't feel like going to see. But concurrently, some of him urged himself to look over everything.
 
-gloly conscious now, he pushed the covers to one side, got out of bed, then went over to the window. In the dim dusk lighting of the moon, he could fully see the church tower up on the tiny hill behind his house, the one with the metro route curving beside it, two hard steel lines glowing dully in the night.
+Fully conscious now, he pushed the covers to one side, got out of bed, then went over to the window. In the dim dusk lighting of the moon, he could fully see the church tower up on the tiny hill behind his house, the one with the metro route curving beside it, two hard steel lines glowing dully in the night. The moon shone too, on the cemetery joined with the church, filled with tombstones you could not interpret nowadays.
