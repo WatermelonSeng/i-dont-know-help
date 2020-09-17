@@ -20,13 +20,13 @@ No one else ever needed to know the plot storyline in his night terror.
 
 Conor blinked groggily in his room, then he frowned. Something seemed to be missing. He got up from his sleep, rousing more. The night terror slowly retired, but something which he could not put his finger on bothered him, something different, something-
 
-He listened, exterting his energy on the silence, but he could only hear the quiet house he was within, the intermittent tick from the empty first floor or the rustle of bedding from his mum's room next door.
+He listened, exterting his energy on the silence, but he could only percieve the quiet house he lived in, the intermittent tick from the empty first floor or the rustle of bedding from his mum's room next door.
 
 Nothing.
 
 Then something. Something which woke him, he noted.
 
-Someone was beckoning him with his title.
+Someone beckoned him with his title.
 
 *Conor.*
 
@@ -38,7 +38,7 @@ Indeed, he'd turned thirteen in September. Monsters were for newborns. Monsters 
 
 *Conor.*
 
-There once more. Conor gulped. The month was oddly hot, with his window still open. The sounds of the blinds shushing in the slight breeze could sound possibly like-
+There once more. Conor gulped. The month kept being oddly hot, with his window still open. The sounds of the blinds shushing in the slight breeze could sound possibly like-
 
 *Conor.*
 
@@ -50,4 +50,6 @@ No. Not his pop. This voice owned texture. Wild, brutish, monstrous texture.
 
 Then he percieved weighty screeches of wood outside, like something humongous striding 'cross timber floors.
 
-He didn't feel like going to see.
+He didn't feel like going to see. But concurrently, some of him urged himself to look over everything.
+
+gloly conscious now, he pushed the covers to one side, got out of bed, then went over to the window. In the dim dusk lighting of the moon, he could fully see the church tower up on the tiny hill behind his house, the one with the metro route curving beside it, two hard steel lines glowing dully in the night.
