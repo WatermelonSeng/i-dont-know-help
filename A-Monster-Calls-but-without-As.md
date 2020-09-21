@@ -53,3 +53,6 @@ Then he percieved weighty screeches of wood outside, like something humongous st
 He didn't feel like going to see. But concurrently, some of him urged himself to look over everything.
 
 Fully conscious now, he pushed the covers to one side, got out of bed, then went over to the window. In the dim dusk lighting of the moon, he could fully see the church tower up on the tiny hill behind his house, the one with the metro route curving beside it, two hard steel lines glowing dully in the night. The moon shone too, on the cemetery joined with the church, filled with tombstones you could not interpret nowadays.
+
+Chapter 4
+_Stories_, Conor thought with dred while he strolled home. With the end of School here, he quickly fled. He'd got through the rest of the day dodging encounters with Henry, Edwin together with Sully, though they were to likely to know not to risk "incidents" from occuring so soon since he'd been close to being spotted by Ms Quin. He's circumvented from Lily too, whom returned to lessons with red puffy eyes with a scowl you could suspend dog flesh from. When the school bell went, Conor bolted out, feeling the burden of school, Harry together with Lily drop from his shoulders while he continuesly left streets behind, leaving his problems behind.
