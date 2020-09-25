@@ -71,4 +71,7 @@ The time when his mother told him they needed to discuss something.
 
 He frowned, yet he kept trotting.
 
-But then once more, he too remembered, the event _before_ the discussion. His mum took him to his most prefered 
+But then once more, he too remembered, the event _before_ the discussion. His mum took him to his most prefered Hindi food shop, letting hinm order however much curry he wished for. Then she'd giggled, shouting, "Why the _FUCK_ not?" while ordering servings of it for herself,too.
+they'd begun burping through their behinds before they'd even got into the vehicle. On the drive home, they could not stop from producing sounds so hard from their mouths and behinds.
+
+Conor smiled just thinking of it. 
