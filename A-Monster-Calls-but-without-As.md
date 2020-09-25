@@ -55,4 +55,20 @@ He didn't feel like going to see. But concurrently, some of him urged himself to
 Fully conscious now, he pushed the covers to one side, got out of bed, then went over to the window. In the dim dusk lighting of the moon, he could fully see the church tower up on the tiny hill behind his house, the one with the metro route curving beside it, two hard steel lines glowing dully in the night. The moon shone too, on the cemetery joined with the church, filled with tombstones you could not interpret nowadays.
 
 Chapter 4
-_Stories_, Conor thought with dred while he strolled home. With the end of School here, he quickly fled. He'd got through the rest of the day dodging encounters with Henry, Edwin together with Sully, though they were to likely to know not to risk "incidents" from occuring so soon since he'd been close to being spotted by Ms Quin. He's circumvented from Lily too, whom returned to lessons with red puffy eyes with a scowl you could suspend dog flesh from. When the school bell went, Conor bolted out, feeling the burden of school, Harry together with Lily drop from his shoulders while he continuesly left streets behind, leaving his problems behind.
+_Stories_, Conor thought with dred while he strolled home. With the end of School here, he quickly fled. He'd got through the rest of the day dodging encounters with Henry, Edwin together with Sully, though they were to likely to know not to risk "incidents" from occuring so soon since he'd been close to being spotted by Ms Quin. He's circumvented from Lily too, whom returned to lessons with red puffy eyes with a scowl you could suspend dog flesh from. When the school bell went, Conor bolted out, feeling the burden of school, Harry together with Lily drop from his shoulders while he continuesly left streets behind, between his problems. 
+
+_Stories_, he thought once more.
+
+"_Your_ stories," Mrs Mull told them in their English lesson. "Don't think you don't possess stories to tell despite being young."
+
+_Life writing_, she'd mentioned it, one homework for them to write out their lifes. Their tribe member's tree, where they lived, going on trips with their joyful memories.
+
+Interesting things which occured.
+
+Connor shifted his book holder on his shoulder. He could think of some interesting things whihc occured. Nothing he wished to write on, though. His pop disowning him. The feline going off once, to never come home.
+
+The time when his mother told him they needed to discuss something.
+
+He frowned, yet he kept trotting.
+
+But then once more, he too remembered, the event _before_ the discussion. His mum took him to his most prefered 
